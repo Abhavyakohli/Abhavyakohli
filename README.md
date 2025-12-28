@@ -25,7 +25,8 @@
 - Transition into a Data Analyst role
 - Apply data-driven decision making
 📫 Reach me at: abhavyaawork@gmail.com
-🔗 LinkedIn: www.linkedin.com/in/abhavya-kohli-a0225438b
+🔗 LinkedIn: https://www.linkedin.com/in/abhavya-kohli-a0225438b/
+
 
 
 
