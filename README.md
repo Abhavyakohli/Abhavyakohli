@@ -53,8 +53,3 @@
 
 
 
-
-
-
-📫 Reach me at: abhavyaawork@gmail.com  
-🔗 LinkedIn: (add link)
